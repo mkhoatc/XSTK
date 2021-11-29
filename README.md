@@ -1,0 +1,1 @@
+# xác chết thống kê
